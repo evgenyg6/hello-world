@@ -1,1 +1,1 @@
-I REALLY hate Linux
+STUPID LINUX FFS
